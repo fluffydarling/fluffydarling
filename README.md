@@ -1,7 +1,7 @@
 <img width="734" height="191" alt="Không Có Tiêu Đề299_20260205144538" src="https://github.com/user-attachments/assets/8d81e088-6476-4691-b802-919f9dbc4252" />
 
 
-   .        ૮ ˙Ⱉ˙ ა rawr!
+   .        ૮ ˙Ⱉ˙ ა rawr !
 
    
    ![ad392331891ce8cf6ceba9e43ea8c10f](https://github.com/user-attachments/assets/25894a9c-2c05-4c8c-baa4-ce3002056e7f)
