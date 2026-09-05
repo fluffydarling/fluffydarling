@@ -7,7 +7,6 @@
    ![ad392331891ce8cf6ceba9e43ea8c10f](https://github.com/user-attachments/assets/25894a9c-2c05-4c8c-baa4-ce3002056e7f)
 
 
-<img width="736" height="736" alt="Không Có Tiêu Đề297_20260205112619" src="https://github.com/user-attachments/assets/84dad2c7-9b47-4925-9138-af0ccf23a879" />
 
 
 ![](https://komarev.com/ghpvc/?username=fluffydarling&color=F9D8DF&label=sylus's+lover) 
