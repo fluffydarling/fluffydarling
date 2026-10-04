@@ -10,7 +10,7 @@ $\color{#ffffff}\textsf{❀ im not very good at communicating, so it might be a 
 
 
 
-
+![](https://komarev.com/ghpvc/?username=fluffydarling&color=F9D8DF&label=my+bunnies) 
 
 
 
@@ -22,7 +22,7 @@ $\color{#ffffff}\textsf{❀ im not very good at communicating, so it might be a 
 
 
 
-![](https://komarev.com/ghpvc/?username=fluffydarling&color=F9D8DF&label=my+bunnies) 
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzkni2hlnfibranxyxyehlm6ve&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&bar_color=ffc7d8&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzkni2hlnfibranxyxyehlm6ve&redirect=true)
