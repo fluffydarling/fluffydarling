@@ -1,16 +1,10 @@
 
 
-       
-$\color{#ffb4cc}\Huge{\textbf{    ૮ ˙Ⱉ˙ ა rawr !     ~  hi nice bunnnniweꫂ❁}}$
-
-$\color{#ffdae6}\textsf{im Haru, you can call me either Hảu in Vietnamese （＞人＜；） }$
-
-$\color{#ffffff}\textsf{❀ im not very good at communicating, so it might be a little awkward... but it was nice meeting you!!! ❀}$
-   
+  ૮ ˙Ⱉ˙ ა rawr !     ~  hi nice bunnnniweꫂ
 
 
 
-![](https://komarev.com/ghpvc/?username=fluffydarling&color=F9D8DF&label=my+bunnies) 
+![](https://komarev.com/ghpvc/?username=fluffydarling&color=F9D8DF&label=fuzzball) 
 
 
 
@@ -26,4 +20,3 @@ $\color{#ffffff}\textsf{❀ im not very good at communicating, so it might be a 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzkni2hlnfibranxyxyehlm6ve&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&bar_color=ffc7d8&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yzkni2hlnfibranxyxyehlm6ve&redirect=true)
-<img width="2160" height="3240" alt="1000030109" src="https://github.com/user-attachments/assets/9285f7f1-6165-459a-bf08-cff0c50ecc7e" />
